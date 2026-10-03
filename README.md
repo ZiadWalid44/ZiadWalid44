@@ -2,7 +2,7 @@
 
 🚀 Passionate about AI & Software Applications.
 
-🌱 4th Year Computer Engineering Student.
+🌱 5th Year Computer Engineering Student.
 
 🧠 Focusing on Machine Learning & Data Structures.
 
